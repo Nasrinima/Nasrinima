@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Nasrinima
-- 👀 I’m interested in my duty
+- 👀 I’m interested in my duty in my job
 - 🌱 I’m currently learning my job
 - 💞️ I’m looking to collaborate on my job
 - 📫 How to reach me you can reach me b my mail
