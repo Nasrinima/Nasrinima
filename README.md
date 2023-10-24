@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Nasrinima
 - 👀 I’m interested in my duty in my jobs
 - 🌱 I’m currently learning my jobs
-- 💞️ I’m looking to collaborate on my job
+- 💞️ I’m looking to collaborate on my jobس
 - 📫 How to reach me you can reach me b my mailing messa
 
 <!---
